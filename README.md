@@ -15,5 +15,3 @@ Unveil my latest creations and spellbound projects [here](https://github.com/Psy
 ## 🌐 Summon the Archmage
 
 - **Email**: [psychevus@gmail.com](mailto:psychevus@gmail.com)
-
----
